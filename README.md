@@ -97,7 +97,7 @@ SolanaTradeSocial offers **affordable and flexible plans** for every type of tra
 
 Joining **SolanaTradeSocial** is simple and fast:
 
-1️⃣ **Visit [solanatradesocial.space](https://solanatradesocial.space)**  
+1️⃣ **Visit [Solanatradesocial.space](https://www.solanatradesocial.space)**  
 2️⃣ **Select your subscription plan**  
 3️⃣ **Complete the SOL payment process**  
 4️⃣ **Access your trading dashboard & start profiting!**  
@@ -138,6 +138,6 @@ The **crypto market moves fast**, and so should you! **Join SolanaTradeSocial to
 🚀 **AI-powered trading intelligence**  
 🚀 **A thriving community of expert traders**  
 
-🔗 **Visit [solanatradesocial.space](https://solanatradesocial.space) now** to claim your **exclusive discount** and start maximizing profits instantly!
+🔗 **Visit [Solanatradesocial.space](https://www.solanatradesocial.space) now** to claim your **exclusive discount** and start maximizing profits instantly!
 
 🔥 **Don’t get left behind—join the future of Solana trading today!** 🚀
